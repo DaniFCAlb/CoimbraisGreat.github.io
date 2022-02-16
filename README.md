@@ -1,1 +1,1 @@
-# CoimbraisGreat.github.io
+# coimbraisgreat.github.io
